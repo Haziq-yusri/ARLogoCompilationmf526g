@@ -1,1 +1,0 @@
-# ARLogoCompilationmf526g
